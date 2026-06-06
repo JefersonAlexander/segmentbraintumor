@@ -2,4 +2,4 @@
 
 Jeferson Alexander Del Rio Herrera
 
-Link video yputube: https://youtu.be/XRAt13rYS4w  
+Link video youtube: https://youtu.be/XRAt13rYS4w  
